@@ -1,4 +1,4 @@
-Cecil Madanes 2013
+Cecily Madanes 2013
 
 Interactive resume template with animated snow
 
